@@ -2,4 +2,4 @@ Shots-inthedark
 ===============
 
 Clearinghouse of speculative notions sloughed off like shed skin.
-### E001 - Theory + Model + . . . > 
+### E001 - Theory + Model + . . . > Rules+Questions . . . > GTruth-Train . . .
